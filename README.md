@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @choco-luxx :)
 - 👀 I’m interested in cooking, basketball, and robotics
-- 🌱 I’m currently learning how to build robots
+- 🌱 I’m currently learning how to code robots
 - 💞️ I’m looking to collaborate on the MOI team
 - 📫 How to reach me: sarahnaaz08@gmail.com
 
