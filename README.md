@@ -1,1 +1,1 @@
-ISO vice captain
+veni vidi vici ‼️‼️
