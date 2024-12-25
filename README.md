@@ -1,1 +1,1 @@
- ฅ(＾・ω・＾ฅ)
+ISO vice captain
